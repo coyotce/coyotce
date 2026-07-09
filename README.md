@@ -1,2 +1,2 @@
-<p align="center">   <img src="https://cubeupload.com/im/coyotce/3dgifmaker83645.gif" /> </p>
+<p align="center">   <img src="https://u.cubeupload.com/coyotce/3dgifmaker83645.gif" /> </p>
 
