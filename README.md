@@ -4,4 +4,5 @@
     <br/>$${\color{#393d89}\text{i follow people with cute skins} }$$
     <br/>$${\color{#393d89}\text{280+ levels in phighting . . .} }$$
         <br/>$${\color{#393d89}\text{easily overwhelmed, will stop talking randomly sometimes} }$$
-            <br/>$${\color{#393d89}\text{DNI 21+, radqueers, basic dni criteria, hh/hb fans} }$$
+            <br/>$${\color{#393d89}\text{LEGAL ships ok! I ship subkit, swocket, boomcoilskateshot, and sublaser} }$$
+                <br/>$${\color{#393d89}\text{DNI 21+, radqueers, basic dni criteria, hh/hb fans} }$$
